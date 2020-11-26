@@ -1,3 +1,1 @@
-# Mobile-Programing-Pert-10
-# Rizki Nur Fauzi
-
+# Rizki Nur Fauzi 18090054
